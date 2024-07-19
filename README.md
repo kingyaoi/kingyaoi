@@ -1,1 +1,1 @@
-![96dc0859bd03e2c0b18b9262e9757607](https://github.com/kingyaoi/kingyaoi/assets/148682715/ed689fd9-37c2-4d83-a188-b9d6e8df0eea)
+![IMG_20240716_154927](https://github.com/user-attachments/assets/55dd8811-424f-41f7-a875-490cd5b483d2)
