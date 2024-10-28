@@ -1,1 +1,1 @@
-![20241026_133911](https://github.com/user-attachments/assets/9098cfd3-ea0c-447f-a314-e569feb843a2)
+![tumblr_1ad3856f474d7f8955b7a8e2decb1dee_c8fb9a76_400](https://github.com/user-attachments/assets/90fee74b-22f9-40b0-a307-f86fac7ffcdc)
